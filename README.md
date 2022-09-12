@@ -1,4 +1,4 @@
-PhD researcher in surface electromagnetics at University of Glasgow. Contact me on: James.Rains@glasgow.ac.uk
+PhD researcher in radio engineering at University of Glasgow. Contact me on: James.Rains@glasgow.ac.uk
 
 
 <!---
